@@ -2,7 +2,7 @@
 - 👀 I’m interested in uncovering meaningful insights from complex datasets
 - 🌱 I’m currently learning Data Science
 - 💞️ I’m looking to collaborate on innovative projects and connect with fellow data enthusiasts, mentors, and industry professionals to exchange ideas and insights
-- 📫 How to reach me: email address- @peaceoluwatayo@gmail.com; linkedin- @https://www.linkedin.com/in/peace-oluwatayo
+- 📫 How to reach me: email address- @peaceoluwatayo@gmail.com;  linkedin- @https://www.linkedin.com/in/peace-oluwatayo
 - 😄 Pronouns: She/Her/They
 - ⚡ Fun fact: I love to cook and organize things!
 
